@@ -1,1 +1,1 @@
-# como eu organizo isso?
+# descobri como organiza
